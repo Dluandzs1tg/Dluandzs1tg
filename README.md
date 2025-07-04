@@ -1,2 +1,4 @@
-Bố m top 1 sever mxh ba' ro~ ok chx
-Dluandztop1sv
+My Name Nguyen Duy Luan
+(BomaylaLuan/CallmeLuan)
+Duy Luan Top 1 Sever Mxh Ba'Ro~ Ok Ch
+Dluantop1sv
